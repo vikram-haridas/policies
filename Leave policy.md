@@ -1,4 +1,4 @@
-# Citizen Code of Conduct
+# IvyCamp Leave Policy
 
 ## 1. Purpose
 
